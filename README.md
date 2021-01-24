@@ -1,3 +1,3 @@
-# Welcome To GoAnimate4SchoolsRemasteredAssets!
+# Welcome To Old GoAnimate Assets!
 
 Feel free to edit!
